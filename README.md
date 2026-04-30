@@ -1,1 +1,1 @@
-i have a small work  
+iam a good teacher  
